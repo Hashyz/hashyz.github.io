@@ -1,0 +1,1 @@
+<a href='https://gocdn.best/free/?03920402511270076054=ETN4cDN'><img width='300' height='250' src='https://gmcdn.xyz/images/banner/gominer_gif300x250.gif'><img width='1' height='1' src='https://gmcdn.xyz/astat.php?id=47851'></a>
